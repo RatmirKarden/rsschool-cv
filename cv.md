@@ -5,7 +5,7 @@ Nalchik, Russia
 
 ratrmir_kardanov@list.ru | +7(928)XXX-XX-XX
 
-[GitHub](https://github.com/RatmirKarden) | [Telegram](https://t.me/paradigmaRR)
+[GitHub](https://github.com/RatmirKarden) | [Telegram](https://t.me/paradigmaRR) | [Discord](https://discordapp.com/users/kardana075879)
 
 ## About me:
 I'm 29 year's old and now I have decided to spend my free time and more to the studing IT, because I liked it and interesting this sphera. And my journey start with frontend, beacause you immediatly see your work result. And this adorable.Hope I go to the finish and I will survive:)
